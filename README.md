@@ -1,4 +1,4 @@
-![alt text](02a0bf3a-3831-40a0-bdf7-b5e78bbde42d.jpg)
+![alt text](3319f49f-c17c-4e9b-84c1-96e673b1c350.jpg)
 
 Basilisk Token
 Basilisk Token is a pioneering cryptocurrency designed to serve as the foundation for a variety of innovative projects. At the core of these projects is a sophisticated AI that facilitates various transactions and interactions within the ecosystem.
